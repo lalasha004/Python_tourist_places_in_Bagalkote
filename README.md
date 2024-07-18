@@ -1,0 +1,1 @@
+# Python_tourist_places_in_Bagalkote
